@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nada
 - 📫 How to reach me só chamar ;)
 - 😄 Pronouns: ele/dele
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: amo mulheres e homens
 
 <!---
 yurimikaellll/yurimikaellll is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
